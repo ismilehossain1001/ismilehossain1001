@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Ismile Hossain
-**A passionate gen_engineer || DevOps Engineer || Kafka Admin from India**
+**A passionate gen_engineer || DevOps Engineer **
 
 Email Me 👉 ✉️ **ismilehossain211@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
